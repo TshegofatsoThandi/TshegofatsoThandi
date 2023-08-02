@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TshegofatsoThandi
-- 👀 I love learning 
+- 👀 I love learning new things and meeting new people 
 - ❤️ I'm still in highschool 
 
 <!---
